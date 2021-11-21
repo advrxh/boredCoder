@@ -1,1 +1,1 @@
-## Random Smol Programs/Projects That I code with my phone, when I'm bored (⌐■_■)
+## Random Smol Programs/Projects That I code when I'm bored (⌐■_■)
